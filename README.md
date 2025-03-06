@@ -23,7 +23,7 @@ No meu GitHub, você encontrará alguns dos meus projetos pessoais e contribuiç
 
 ### Contato
 - **Email:** ericruivo@hotmail.com
-- **LinkedIn:**www.linkedin.com/in/eric-ruivo
+- **LinkedIn:** www.linkedin.com/in/eric-ruivo
 
 ---
 
